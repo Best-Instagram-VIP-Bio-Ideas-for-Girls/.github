@@ -81,7 +81,7 @@ Don’t just copy-paste — tweak it, add an emoji you love, or even mix two lin
 
 ## A Quick Styling Hack
 
-Want your [Instagram bio](https://biogrami.com) to look VIP instantly? Use line breaks, unique fonts, and well-placed emojis. Even a simple word written in a different style can make your profile pop. Apps and tools for **Instagram bio fonts** are everywhere — and they make a huge difference in presentation.  
+Want your Instagram bio to look VIP instantly? Use line breaks, unique fonts, and well-placed emojis. Even a simple word written in a different style can make your profile pop. Apps and tools for **Instagram bio fonts** are everywhere — and they make a huge difference in presentation.  
 
 
 ## Final Thoughts
